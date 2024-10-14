@@ -59,8 +59,73 @@ Yes! Our biodata maker allows you to add new fields or customize existing ones t
 
 We are committed to providing the **best marriage biodata generator** to make your journey toward marriage simpler. Our easy-to-use, beautifully designed tool allows you to create professional marriage biodatas that will help you take the first step toward finding your perfect match.
 
+## Create Your Marriage Biodata in Kannada, Hindi, and Marathi
+
+We understand the importance of language in expressing your cultural identity. That's why we allows you to create and download biodatas in **Kannada (ಕನ್ನಡ), Hindi (हिन्दी), and Marathi (मराठी)**. Whether you're comfortable with regional languages or prefer to use English, our platform has got you covered with customizable marriage biodata templates in multiple languages.
 
 ---
+
+## Newest Marriage Biodata Formats
+
+Discover our **Newest Marriage Biodata Formats** designed to meet modern and traditional preferences. Choose from various elegant themes, including:
+
+- **Cream and Red Theme** for girls
+- **Cream and Golden Theme** for boys
+- **Maroon Traditional Theme**
+- **Golden Toran Theme**
+- **Blue and White Theme** and more!
+
+Create your perfect biodata today by customizing any of these formats to reflect your unique personality.
+
+---
+
+## Online Marriage Biodata Maker
+
+Create your marriage biodata effortlessly with our **Online Biodata Maker**. With a simple, step-by-step interface, you can create and download your biodata in **just a few clicks**—no registration or sign-up required. Our tool provides ready-made templates, allowing you to:
+
+- Fill in personal, family, and contact details
+- Choose a biodata format that fits your style
+- Customize sections, add photos, and more
+
+Make your biodata **quickly and easily** from any device—**mobile, laptop, or desktop**.
+
+---
+
+## Create Free Biodata Now – No Sign Up Required!
+
+More than **5440,890 free biodatas** have been created using this app. Join thousands of others by creating your **free biodata now**—with no sign-up or registration required. Simply fill out your information, choose a template, and download your professional biodata in **PDF**.
+
+---
+
+## Benefits of Using Our Marriage Biodata Maker
+
+1. **No Data Stored**: Your biodata details never leave your device as all work is done locally.
+2. **Customizable**: Add colors, fonts, and fields. Personalize your biodata with round or portrait-shaped profile photos.
+3. **Email Option**: Share your biodata in real-time via email without downloading it.
+4. **No Sign-Up**: Start creating your biodata without the hassle of registration.
+
+---
+
+## Start Making Your Marriage Biodata Now!
+
+1. **Step 1**: Fill in your details (personal, family, and contact information).
+2. **Step 2**: Choose a template and customize the layout to your preference.
+3. **Step 3**: Click "Generate Biodata" and download it in **PDF format**.
+
+It's that simple! Start building your biodata today and find your perfect life partner.
+
+---
+
+## Marriage Biodata Formats in Kannada, Hindi, and Marathi
+
+Looking to create your biodata in a specific language? We provide **sample biodata formats** in popular languages such as:
+
+- **Kannada (ಕನ್ನಡ)**
+- **Hindi (हिन्दी)**
+- **Marathi (मराठी)**
+
+Download your biodata in **Word or PDF** format, and share it with potential matches in a language that speaks to your heart.
+
 
 ## Ready to Create Your Biodata?
 
